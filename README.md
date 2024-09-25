@@ -1,4 +1,4 @@
-lINKED IN PROFILE:
+LINKED IN PROFILE:
 https://www.linkedin.com/in/siliconvalleypro1/
 
 <!---
